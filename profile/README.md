@@ -2,11 +2,11 @@
 
 | Казино             | Приветственный бонус    | Особенности                                      | Ссылка                                                                                    |
 | ------------------ | ----------------------- | ------------------------------------------------ | ----------------------------------------------------------------------------------------- |
-| **1win**           | До 500% + 100 FS        | Без верификации, 7000+ игр, моментальные выплаты | [1win](https://1wzyuh.com/casino/list?open=register&p=rw7w)                                          |
+| **1win**           | До 500% + 100 FS        | Без верификации, 7000+ игр, моментальные выплаты | [1win](https://1wilib.life/casino/list?open=register&p=t09u)                                          |
 | **Stake**          | Промокод + VIP rakeback | Крипто-выплаты, спорт и live казино              | [Stake](https://stake1037.com/?c=JiMxFVsp)                                                    |
 | **BC.Game**        | До 1 BTC                | Мгновенные выплаты, криптовалюты                 | [BC.Game](https://bcgame.nz/i-3a9esjz8l-n/)                                               |
 | **DragonMoney**    | До 150% + кэшбэк        | Турниры, лутбоксы, быстрые выплаты               | [DragonMoney](https://drg.so/ff0b01f78)              |
-| **Vavada**         | 1000₽ + 100 FS          | Без паспорта, зеркало без VPN                    | [Vavada](https://gate707.com/?promo=3c934242-fecd-4cda-a44a-90abcf3b2407&target=register) |
+| **Vavada**         | 1000₽ + 100 FS         | Без паспорта, зеркало без VPN                    | [Vavada](https://gate707.com/?promo=3c934242-fecd-4cda-a44a-90abcf3b2407&target=register) |
 | **Kometa**         | 100% + 100 FS           | Красочный интерфейс, слоты, турниры              | [Kometa](https://tropical-path.com/s7d8a1999)                                             |
 | **R7 Casino**      | До 200% + VIP статус    | Новинка 2025 года, простая регистрация           | [R7](https://aristocratic-hall.com/s7f064747)                                             |
 | **CatCasino**      | 325% на первые депозиты | Быстрая верификация, cashback до 15%             | [CatCasino](https://catchthecatthree.com/s74cd5c49)                                       |
